@@ -1,3 +1,5 @@
+![CourseCareersCertificate (2)](https://user-images.githubusercontent.com/121806838/214898153-36b32311-6e0c-4662-b4fa-728eb5712c2b.jpeg)
+![CourseCareersCertificate (1)](https://user-images.githubusercontent.com/121806838/214898396-787e8171-00bd-4565-bbf9-3cd26d16b22f.jpeg)
 <h1>Hi, I'm Mary, an <a href="https://linkedin.com/in/Josh">IT Professional</a>☺</h1>
 
 <h2>👨‍💻 Information Technology Projects:</h2>
@@ -18,3 +20,5 @@
 
 [twitter]: https://twitter.com/mary
 [instagram]: https://www.instagram.com/mary
+![CourseCareersCertificate (2)](https://user-images.githubusercontent.com/121806838/214898548-82edfed7-1037-4c09-a7ee-4861f7ab03e0.jpeg)
+![CourseCareersCertificate (2)](https://user-images.githubusercontent.com/121806838/214898725-0f4fd1a9-3140-4823-b75f-4bccc5b540eb.jpeg)
